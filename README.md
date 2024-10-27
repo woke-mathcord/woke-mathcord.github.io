@@ -66,3 +66,7 @@ Summed up,
 
 This aligns well with many such experiences that I made.  
 Idiocy is not an exception, but a common by-product of social dynamics and peer pressure.
+
+### Aftermath
+
+Due to the incident and a lack of any decent feedback, the perpetrator™ had little to no interest in staying on the “[Mathcord](https://mathematics.gg/)” server. After recklessly inciting a debate around this topic, a permanent ban followed within a few hours. Apparently due to being provocative and “out of line”, but while still attempting to be friendly and sincere.
