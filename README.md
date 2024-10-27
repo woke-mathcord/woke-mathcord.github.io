@@ -45,3 +45,24 @@ This serves as an example of common idiocy that is very serious. Picking example
 
 When I converse that idiots are essentially everywhere, I am often asked for reasons and examples.  
 Despite being a creative mind, I couldn't even make this shit up as something that realistically happens.
+
+### But such idiocy is not socially acceptable, right?
+
+Very wrong. Let's have a look at the emoji reactions sparked within 24 hours.
+
+1. [`:thisnt:`](img/thisnt.png)
+  [![woke-mathcord-01.png](img/woke-mathcord-01.png)](img/woke-mathcord-01.png)
+2. [`:this:`](img/this.png)
+  [![woke-mathcord-02.png](img/woke-mathcord-02.png)](img/woke-mathcord-02.png)
+3. [`:8D:`](img/8D.png)
+  [![woke-mathcord-03.png](img/woke-mathcord-03.png)](img/woke-mathcord-03.png)
+4. [`:catthumbsup:`](img/catthumbsup.png)
+  [![woke-mathcord-04.png](img/woke-mathcord-04.png)](img/woke-mathcord-04.png)
+
+Summed up,
+- six people had no idea what racism means but approved of insinuating racism anyway,
+- four people approved of divisive ideology and bullying, and
+- only a single person had a reasonable reaction.
+
+This aligns well with many such experiences that I made.  
+Idiocy is not an exception, but a common by-product of social dynamics and peer pressure.
