@@ -10,7 +10,7 @@ The [woke mind virus](https://knowyourmeme.com/memes/woke-mind-virus) has appare
 
 ### Am I kidding or exaggerating? I wish.
 
-On [Mathematics](https://mathematics.gg/), the **largest mathematics-related Discord server** — and an **Official Discord Partner** with [over 230000 members at the time](img/Join-2024-10-27-02.58.20.jpg) — multiple moderators agreed that *permanently restricting channel access privileges* and *a temporary mute* would make an appropriate punishment for someone **expressing an aversion to Chinese language with respect to efficiency**.  
+On [Mathematics](https://mathematics.gg/), the **largest mathematics-related Discord server** — and an **Official Discord Partner** with [over 230000 members at the time](img/Join-2024-10-27-02.58.20.jpg) — multiple moderators agreed that *restricting channel access privileges* and *a temporary mute* would make an appropriate punishment for someone **expressing an aversion to Chinese language with respect to efficiency**.  
 The moderation team unironically argued that expressing such opinions would discriminate against native speakers of the language and turned a blind eye to the “`muted and removed for being dumb`” message by the executing moderator, which in fact admitted discrimination against the accused mathematician.
 
 Despite the latter pointing out these issues and refuting the moderator's concerns via
